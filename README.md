@@ -7,9 +7,9 @@
 Further Reading:
 - [一個人的戰爭（中）林白](https://rereadqueer.github.io/20221022/一个人的战争.pdf)<br>
 - [鱷魚手記（台）邱妙津](https://rereadqueer.github.io/20221022/鳄鱼手记.pdf)<br>
-- [罔两问景：酷儿阅读攻略](https://rereadqueer.github.io/20221022/罔两问景：酷儿阅读攻略.pdf)<br>
+- [罔两問景：酷兒閱讀攻略](https://rereadqueer.github.io/20221022/罔两问景：酷儿阅读攻略.pdf)<br>
 - [从1959年溯游：我们站在女同性恋书籍的历史河流](https://mp.weixin.qq.com/s/BgHJSs7Cz65bAQnChKnB3w)<br>
-- [浮现中的女同性恋](https://zh.b-ok.global/book/5978995/7f996c)<br>
+- [浮現中的女同性戀](https://zh.b-ok.global/book/5978995/7f996c)<br>
 
 电影分享：
 - [女人Taxi女人（中）潘虹,丁嘉莉](https://www.bilibili.com/video/BV1Ms411o7cK/?spm_id_from=333.337.search-card.all.click)<br>
